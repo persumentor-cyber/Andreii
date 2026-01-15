@@ -16,7 +16,7 @@
 - пользовательский опыт и beauty e-commerce  
 
 ### Ресурс
-https://feelbe.com.ru
+https://feelbe.com.ru/ru/ingredietnts
 
 ---
 
